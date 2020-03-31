@@ -11,8 +11,8 @@ Stay Home ! Stay Safe
 Implementing such devices in public places and in places where many people tend to use the taps, can prevent the spread of viruses to others. 
 
   
-#Link-for-the-working-video
+# Link for the working video
 https://drive.google.com/open?id=1D3YiPvtOkD6DD3SXf3uHBXKA0dXdseiY
 
-#Instagram-Post-link
+# Instagram Post link
 https://www.instagram.com/p/B-UhEuQjCYk/?igshid=16mcqnhpj5bhq
